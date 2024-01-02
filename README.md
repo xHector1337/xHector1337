@@ -2,3 +2,4 @@
 - I'm interested in programming, reading and writing! ( I love philosophy! )
 - I'm an introverted person but you can feel free to message me.
 - You can reach me on discord: xhector1337 
+- Remember, html is not a programming language, bad things happen more than good things in life, school kills artists!
